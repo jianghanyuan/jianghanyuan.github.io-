@@ -1,2 +1,0 @@
-# Blake Jiang
-Blake Jiang
